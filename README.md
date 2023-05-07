@@ -8,7 +8,8 @@
 
 ### -------------------------------------------------------------
 
-### Discord User Name : B5#2617
+### Discord User Name : B5#2617 ![image]({https://img.shields.io/badge/Discord-5865F2?style=for-the-badge&logo=discord&logoColor=white})
+
 ### [Instagram](https://www.instagram.com/b5kenege/)
 ### [Youtube](https://www.youtube.com/channel/UCKwC_lDWfrUBWItO85XDtxQ)
 
