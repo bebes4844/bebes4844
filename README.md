@@ -4,10 +4,13 @@
 * ### I Am Currently Aiming To Develop İn The Software Field🐱‍👤
 * ## I am an active discord user (Not a moderator)🤠
 ### Words Have Nothing Else To Say 🥱 
-### So Good Luck Everyone 😱
+### So Good Luck Everyone 😱 (The Tables Below May Be Empty But I Will Fill Them Out😌)
 
 ### -------------------------------------------------------------
 
+## Discord User Name : B5#2617
+## [Instagram](https://www.instagram.com/b5kenege/)
+##
 
 
 
