@@ -8,10 +8,10 @@
 
 
 
-## Social Media :fishsticks:	
+## 🎬 Social Media 	
 
 ### [![Discord](https://img.shields.io/badge/Discord-5865F2?style=for-the-badge&logo=discord&logoColor=white)](https://discord.gg/AWjFAgxcta)[![İnstagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/b5kenege/)[![Youtube](https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/channel/UCKwC_lDWfrUBWItO85XDtxQ)[![Spotify](https://img.shields.io/badge/Spotify-1ED760?&style=for-the-badge&logo=spotify&logoColor=white)](https://open.spotify.com/user/37c18jw4xi8yy63kcbsipp4pf?si=f2b7392f8a6d4fb4)  
-## Languages (I Will Learn More 😔)
+## 🔧 Languages 
 
 ### ![Python](https://img.shields.io/badge/Python-FFD43B?style=for-the-badge&logo=python&logoColor=blue)
 
