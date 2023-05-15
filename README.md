@@ -3,7 +3,7 @@
 * #### I Am Currently Aiming To Develop İn The Software Field🐱‍👤
 * #### I am an active discord user (Not a moderator :trollface:	)
 * #### Words Have Nothing Else To Say 🥱 
-* #### So Good Luck Everyone :shipit:	 (The Tables Below May Be Empty But I Will Fill Them Out😌)
+* #### So Good Luck Everyone :shipit:	 
 
 ![User](https://github.com/bebes4844/bebes4844/assets/119162883/209f66da-00b6-4cba-b363-e599a9ff4005)
 
