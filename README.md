@@ -1,3 +1,6 @@
+![alt text](https://cdn.discordapp.com/attachments/1173995285228290162/1187230507319164948/Ekran_goruntusu_2023-12-21_060143.png?ex=65962192&is=6583ac92&hm=b9293dd7749167f26105d079f8581b2b14250901e794ab756f4389644da9c449&)
+
+
 ## HOLA AMİGOS :shipit:	
 
 - :neckbeard: Salutations
